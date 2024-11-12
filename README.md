@@ -12,6 +12,6 @@
 :confused:
 :relaxed:
 :fire:
-eu adoro de escutar música :notes:
+eu adoro de .escutar música :notes:
 eu gosto de comer :tongue:
 eu adoro fazer compras online :heart_eyes_cat:
